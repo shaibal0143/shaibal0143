@@ -7,5 +7,5 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently working on web development and java.
 - 🌱 I’m currently learning java language. 
-- 📫 How to reach me: https://www.instagram.com/shaibalkrpathak/,https://www.facebook.com/shaibal.pathak.5/,https://twitter.com/Pathak0143
+- 📫 How to reach me: https://www.instagram.com/shaibalkrpathak/,  https://www.facebook.com/shaibal.pathak.5/,  https://twitter.com/Pathak0143
 - ⚡ Fun fact: very creative ,good in sports.
